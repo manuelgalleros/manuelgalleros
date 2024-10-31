@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a 2nd year BSIT student at Capitol University
+I'm a 2nd year BSIT student at Capitol University with a passion for technology and innovation. My journey in the world of IT is driven by curiosity and a constant desire to learn and grow.
 
 
 ## 🌐 Socials:
